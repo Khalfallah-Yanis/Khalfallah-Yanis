@@ -1,0 +1,5 @@
+- 👋 Bonjour, je m'appelle Khalfallah Yanis, j'ai 19 ans
+- 💻 Je suis actuellement en étude Système Numérique Option - "Informatique et Réseaux"
+- 🌱 Je suis curieux de nature, volontaire et dynamique
+- 💞️ Ma vision de mon futur travail est la création et la conception de Site Web
+- 📫 Pour toutes demandes, veuillez me contacter par mail : yaniskhal.pro@gmail.com
